@@ -1,1 +1,1 @@
-# Suporte-T-cnico-de-Hardware-e-Software
+# Suporte-Tecnico-de-Hardware-e-Software
